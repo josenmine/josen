@@ -1,6 +1,6 @@
 # josen Sidauruk
 # Dennis keliat
 # Ginda aditya putra
-# Johathan Pandiangan
+# Yohathan D Pandiangan
 # Desman Tumanggor
 come and learn
